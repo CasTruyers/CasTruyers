@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CasTruyers
+- 👀 I’m interested in minecraft
+- 🌱 I’m currently learning minecraft
+- 💞️ I’m looking to collaborate on minecraft
+- 📫 How to reach me dont reach me
